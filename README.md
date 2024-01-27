@@ -4,6 +4,4 @@ zzzzdsfsf
 ,dasdasdm,ваывавыm,
 dsadsdsads
 asdsadsafafa
-nngvnhcgbxf
-sa
-hxfghg
+nngvnh
